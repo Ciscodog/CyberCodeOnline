@@ -1,0 +1,3 @@
+As you pick up the memory bank, you feel a great sensation. You close your eyes and feel so many feelings. Joy, hatred, despair, surprise, disgust, fear...
+
+You open your eyes again. How long were your eyes closed? An hour? A day? A Month? You check the time to find it was only for a breif moment. The memory bank beckons you to experience it once again.
